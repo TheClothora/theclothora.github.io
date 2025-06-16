@@ -23,9 +23,9 @@
 
 ### 📲 Contact Us
 Have questions or custom requests?  
-💬 WhatsApp: [wa.me/9174xxxxxxxx23](https://wa.me/917404328023)  
-📧 Email: theclothora@gmail.com 
-📸 Instagram: [@theclothora](https://instagram.com/theclothora)
+- 💬 WhatsApp: [wa.me/9174xxxxxxxx23](https://wa.me/917404328023)  
+- 📧 Email: theclothora@gmail.com 
+- 📸 Instagram: [@theclothora](https://instagram.com/theclothora)
 
 ---
 
